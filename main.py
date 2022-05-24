@@ -1,1 +1,1 @@
-ahoj, já jsem kuba
+ahoj, já jsem kája
